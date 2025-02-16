@@ -1,2 +1,1 @@
 - Resume Link: [saqibmunir.xyz](https://sakib-miirza.github.io/saqibmunir.xyz/)
-- 
